@@ -1,0 +1,1 @@
+# Verkefninf_fyrir_KEST_verkenfin_6
